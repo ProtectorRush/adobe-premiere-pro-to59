@@ -1,4 +1,4 @@
-
+Adobe Premiere Pro for macOS updated Transition: subtitle-generator & version-history offers the most advanced Adobe Premiere Pro for macOS transition, with subtitle-generator and
 
 
 
